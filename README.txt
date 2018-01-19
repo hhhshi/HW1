@@ -1,2 +1,0 @@
-Han Shi
-Iowa Hawkeye
